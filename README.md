@@ -11,6 +11,7 @@ Mas não nos ficamos só pelo meetup. Visitando o [nosso website descentralizado
 
 Não somos nenhuns radicais. Cada um tem as suas ideologias. Pretendemos partilhar conhecimento e experiências. Não influenciar pessoas a comprar cripto, hipotecando a casa.
 
+Se tens alguma curiosidade sobre algum tópico, envia-nos mensagem com as tuas sugestões. Ou participando num meetup. Esperamos que te sintas confortável.
 
 
 
